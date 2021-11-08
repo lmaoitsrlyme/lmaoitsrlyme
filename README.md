@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lmaoitsrlyme
 - 👀 I’m interested in coding yes
-- 🌱 I’m currently learning python
+- 🌱 I’m currently learning virtual reality things idk 🤯🤯
 - 💞️ I’m looking to collaborate on nothing (bichi naneun solo)
 - 📫 How to reach me: you cant (bichi naneun solo)
 
